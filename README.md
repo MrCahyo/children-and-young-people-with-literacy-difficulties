@@ -1,3 +1,4 @@
+![enter image description here](https://cdn-img.keepyourdocs.com/47c5d9f6afede2b6c8869c720ef9442b23c435ac4353841a9b71cd5cf8c10406/AnGUA1-hehgNK73iKhnVeA/1681498159.png)
 Literacy is a fundamental skill that is essential for success in today’s society. It is the ability to read, write, and communicate effectively, and it is necessary for individuals to function in a variety of contexts, such as education, work, and daily life. However, not all children and young people develop these skills at the same pace or to the same level. Some children and young people may experience difficulties with literacy, which can have a significant impact on their academic and personal outcomes. In this article, we will explore what works for children and young people with literacy difficulties.
 
 Identifying Literacy Difficulties
